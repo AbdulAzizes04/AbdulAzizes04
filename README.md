@@ -2,7 +2,7 @@
 - 👀 I’m interested in  enhancing about data science
 - 🌱 I’m currently learning dsa and data analyst courses
 - 💞️ I’m looking to collaborate on  working with data science
-- 📫 How to reach me through shaikazizes04@gmail.com
+- 📫 reach me through shaikazizes04@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: 
 
